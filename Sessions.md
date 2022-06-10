@@ -38,7 +38,7 @@
 ## Session 06: 10-05-2022
 ### CBSE Intel AI for Youth Bootcamp (Data Science) | DPS Rourkela & RMIS
 
-### [Unlisted] YouTube Video: Coming Soon...
+### [Unlisted] YouTube Video: Not Available
 
 <hr>
 
@@ -52,7 +52,7 @@
 ## Session 08: 12-05-2022
 ### CBSE Intel AI for Youth Bootcamp (Data Science) | DPS Rourkela & RMIS
 
-### [Unlisted] YouTube Video: Coming Soon...
+### [Unlisted] YouTube Video: Not Available
 
 <hr>
 
